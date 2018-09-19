@@ -1,2 +1,2 @@
 # hello-world
-first repository
+second of alll  u gat to learn this
